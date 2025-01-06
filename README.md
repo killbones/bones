@@ -1,1 +1,1 @@
-# bones
+![gif](https://media.discordapp.net/attachments/860227313701486675/1322380736535461898/makesweet-ih7j0s-ezgif.com-speed.gif?ex=677d30c8&is=677bdf48&hm=53055020b938de818ba13521756ae7398a92a937490ab36d314fa546b271a7c4&=)
